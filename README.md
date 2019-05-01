@@ -1,2 +1,2 @@
-# issarlee
-nanjing jiangsu
+# 信息化融合创新背景下的学校变革与机制研究 课题组
+
